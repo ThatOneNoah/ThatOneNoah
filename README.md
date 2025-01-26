@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ThatOneNoah
+- 👀 I’m interested in Roblox
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am 16
