@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @ThatOneNoah
-- 👀 I’m interested in Roblox
+- 👀 I’m interested in coding in lua and I am making a roblox game.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am 16
